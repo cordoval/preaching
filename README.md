@@ -20,7 +20,9 @@ conexiones:
 > Sobre que el Señorío y nombre de Dios:
 > - el mismo proclama su propio nombre
 > - el territorio soberano es total
+> - el señorío no es negociable e.g. Faraón intentó luego del granizo dejar ir solo a los hombres.
 
 > misericordia en medio del juicio:
 > - no mató por granizo a todo el ganado ni a todo los esclavos/siervos egipcios
 > - no mató por hambre sino dejó oportunidad que eliminó con la langosta
+
