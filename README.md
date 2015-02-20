@@ -62,6 +62,10 @@ Dios es todopoderoso:
 > - el Señorío no es negociable e.g. Faraón intentó luego del granizo dejar ir solo a los hombres.
 
 Dios es severo y misericordioso:
+>
+> La severidad del juicio:
+> - la Escritura hace incapié en la severidad de las plagas
+>
 > La misericordia en medio del juicio:
 > - no mató por granizo a todo el ganado ni a todo los esclavos/siervos egipcios
 > - no mató por hambre sino dejó oportunidad que eliminó con la langosta
