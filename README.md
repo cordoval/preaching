@@ -6,7 +6,6 @@ Titulo: El temor del/al Señor
 Dios levanta a un tirano que arroja a los bebes hebreos al río a ser devorados
 para mostrar su poder y avanzar su plan maestro.
 
-
 Plagas:
 
 Las plagas anteriores no iban directamente contra los Egipcios mas estas plagas ahora si comenzaban a
@@ -84,3 +83,28 @@ de la esclavitud, se glorifica en este juicio y explica la redención venidera. 
 prefigura lo que Dios hizo al matar a los primogénitos de Egipto pero salvar a los
 hebreos ahora se transmite con el sacrificio de los primogénitos de los animales y
 la redención de los primogénitos varones de Israel.
+
+Al final del día todo es acerca de la fe. Faraón no creyó, Dios hizo las señales en su presencia, a pesar de esto
+se obstinó en negarlo. Muchos pensamos que sólo una prueba nos hará creer o hará creer al mas duro. Sin embargo,
+he aquí alguien con todas las pruebas necesarias y sin fe hasta el final. La disposición hacia Dios muestra
+si tenemos fe o no.
+
+Las portentosas obras de Dios llaman a ser creídas. Sucedieron mucho tiempo atrás y muchas veces parecen no tener
+implicaciones a como vivimos. Fueron tan grandes que claman por ellas mismas desde el momento que ocurrieron.
+De la misma manera la obra de la cruz demanda una respuesta inmediata de nuestra parte. Inspira fe o endurecimiento.
+Se hace efectiva en cada uno de nosotros a manera de juicio o de misericordia y está siempre actuando.
+
+Los sacrificios y la redención en el pueblo de Israel prefiguraban el cese de la vida para los primogénitos Egipcios y
+la redención del primogénito de Dios. Cristo, el primogénito, redime por fe al pecador. No tenemos que pagar con la
+muerte nuestros pecados mas Cristo nos libera de la esclavitud del pecado.
+
+Este Evangelio de Cristo demanda ser creído hoy.
+
+2 Timoteo 2:11-13:
+
+Palabra fiel es esta:
+Si somos muertos con él, también viviremos con él;
+Si sufrimos, también reinaremos con él;
+le negáremos, él también nos negará.
+Si fuéremos infieles, él permanece fiel;
+El no puede negarse a sí mismo.
